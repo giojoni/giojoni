@@ -6,3 +6,4 @@
 - estou aprendendo, e procuro mais aprendizado✍🏻
 - adoro coisas coloridas💅🏼
 - I'm just a girl🩰
+![](
