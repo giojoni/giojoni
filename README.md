@@ -1,10 +1,10 @@
 
 ✨Oieee,me chamo Giovanaa(giojoni)✨
 
-- atualmente tenho 15 aninhos 💋
+- atualmente tenho 16 aninhos 💋
 - moro em cwb🌏
 - estou aprendendo, e procuro mais aprendizado✍🏻
-- adoro coisas coloridas💅🏼
+- meu sonho e me formar em pediatria
 - I'm just a girl🩰
 - como entrar em contato 📪 : giovanna.araujo.mello@escola.pr.gov.br
 
