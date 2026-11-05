@@ -1,7 +1,7 @@
 
 ✨Oieee,me chamo Giovanaa(giojoni)✨
 
-- atualmente tenho 16 aninhos 💋
+- atualmente tenho 17 aninhos 💋
 - moro em cwb🌏
 - estou aprendendo, e procuro mais aprendizado✍🏻
 - meu sonho e me formar em pediatria
